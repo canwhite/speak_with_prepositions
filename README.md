@@ -7,19 +7,20 @@
 整个教程以 **“I’m into something”** 为起点，但会全面覆盖各种介词（如 out of, up for, on to 等），让你在对话中用得更流畅。内容会分模块，便于学习！  
 **目标**：从 **I’m into** 开始，全面学习高频短语，包括“out of”系列和其他常用介词，并通过练习融入你的口语。
 
-## PART1---终极对比：十三大核心意象**
+## PART1---终极对比：十四大核心意象**
 
 ---
 
-现在，我们拥有了一个非常完整的框架。这十三个核心意象构成了理解绝大多数英语短语动词的基石。
+现在，我们拥有了一个非常完整的框架。这十四个核心意象构成了理解绝大多数英语短语动词的基石。
 
 | 小品词                  | 核心意象                                 | 典型例子                     | 感觉像...                                        |
 | :---------------------- | :--------------------------------------- | :--------------------------- | :----------------------------------------------- |
-| [`into`](INTO.md)       | **深入与投入**                           | `get into` (开始喜欢)       | **跳进**游泳池；**沉浸**在音乐世界里。         |
+| [`into`](INTO.md)       | **深入与投入**                           | `get into` (开始喜欢)        | **跳进**游泳池；**沉浸**在音乐世界里。           |
 | [`up`](UP.md)           | **朝向一个更积极、更完整或更显著的状态** | `come up` (问题出现)         | 一个气泡从水底**冒上**水面。                     |
 | [`over`](OVER.md)       | **覆盖与超越**                           | `come over` (过来；感觉笼罩) | 走过一座桥**到对岸**；一张毯子**盖**上来。       |
 | [`out`](OUT.md)         | **由内向外，从有到无**                   | `find out` (发现)            | 从口袋里把东西**掏出来**；蜡烛**烧尽**熄灭。     |
 | [`off`](OFF.md)         | **分离和断开**                           | `take off` (脱下；起飞)      | 把磁铁从冰箱上**掰下来**；按下开关**断开**电源。 |
+| [`on`](ON.md)           | **接触与焦点**                           | `turn on` (打开；启动)     | **按**开关灯**亮**了；**连接**上网络。         |
 | [`in`](IN.md)           | **进入其中，成为部分**                   | `give in` (屈服)             | 走**进**一个房间；成为团队**一员**。             |
 | [`with`](WITH.md)       | **在一起**                               | `agree with` (同意)          | 用绳子把两样东西**绑在一起**；**带着**工具工作。 |
 | [`for`](FOR.md)         | **目的和指向**                           | `go for` (争取)              | 朝着靶心**射箭**；**用钱换**商品。               |
@@ -368,10 +369,114 @@
 
 ---
 
-### **7. 你的下一步行动**
+### PS. 多介词联动：口语中的实用组合
 
-- **分享练习**：做完测试，发给我，我帮你改成更地道版本。
-- **定制对话**：告诉我场景（如职场会议或约会），我用这些短语写一段样例对话。
-- **焦点扩展**：想深挖某个介词（如“up”或“down”系列）？或加更多练习？告诉我！
+两个介词联动是口语中最常见的组合方式，以下是最实用的例子：
 
-这个教程现在更全面了，覆盖了 50+短语！如果还有遗漏或想调整，随时说。加油，你的“介词流”会越来越溜！😊
+#### **1. Out of + ... (最常用系列)**
+
+- **Out of town** (不在城里)
+  - 例：Sorry, can't help you, I'm **out of town** this weekend. （抱歉帮不了你，我这周不在城里。）
+  - 场景：解释为什么不能参加活动。
+
+- **Out of the blue** (突然地)
+  - 例：My ex called me **out of the blue** yesterday. （我前任昨天突然给我打电话了。）
+  - 场景：描述意外事件。
+
+- **Out of control** (失控)
+  - 例：The party got **out of control** around midnight. （派对午夜时分失控了。）
+  - 场景：描述情况变得混乱。
+
+#### **2. Up + ... (积极行动系列)**
+
+- **Up to** (正在做/密谋)
+  - 例：What are you **up to** tonight? （你今晚在忙什么？）
+  - 场景：询问某人正在做什么。
+
+- **Up for** (愿意做)
+  - 例：Are you **up for** a movie tonight? （你今晚想看电影吗？）
+  - 场景：邀约或提议。
+
+- **Up against** (面临困难)
+  - 例：We're **up against** a tight deadline. （我们面临紧张的截止日期。）
+  - 场景：工作中描述挑战。
+
+#### **3. In + ... (状态系列)**
+
+- **In on** (参与/知情)
+  - 例：Were you **in on** the surprise party? （你参与了这个惊喜派对的策划吗？）
+  - 场景：询问是否参与某事。
+
+- **In to** (对...感兴趣)
+  - 例：I'm really **in to** jazz music lately. （我最近真的很喜欢爵士乐。）
+  - 场景：表达兴趣。
+
+- **In on it** (一起参与)
+  - 例：If you're planning something, I'm **in on it**! （如果你在计划什么，算我一份！）
+  - 场景：表达参与意愿。
+
+#### **4. Through + ... (完成系列)**
+
+- **Through with** (结束/完成)
+  - 例：I'm **through with** this relationship. （我结束了这段关系。）
+  - 场景：表达彻底放弃或结束。
+
+- **Go through with** (坚持完成)
+  - 例：I've decided to **go through with** the surgery. （我决定要做这个手术。）
+  - 场景：表示坚持做困难的决定。
+
+#### **5. Get + ... (变化系列)**
+
+- **Get over** (克服/恢复)
+  - 例：It took me months to **get over** the breakup. （我花了好几个月才走出分手的阴影。）
+  - 场景：情感恢复。
+
+- **Get through to** (联系上/让理解)
+  - 例：I couldn't **get through to** customer service. （我打不通客服电话。）
+  - 场景：沟通困难。
+
+- **Get away with** (逃脱惩罚)
+  - 例：How did he **get away with** being late every day? （他是如何做到每天迟到却不被惩罚的？）
+  - 场景：描述侥幸逃脱。
+
+#### **6. Come + ... (出现系列)**
+
+- **Come up with** (想出)
+  - 例：We need to **come up with** a better solution. （我们需要想出更好的解决方案。）
+  - 场景：头脑风暴。
+
+- **Come down to** (归结为)
+  - 例：It all **comes down to** money in the end. （最终归结为钱的问题。）
+  - 场景：总结根本原因。
+
+- **Come out with** (说出/推出)
+  - 例：Apple just **came out with** a new iPhone. （苹果刚发布了新iPhone。）
+  - 场景：产品发布。
+
+#### **7. Look + ... (关注系列)**
+
+- **Look forward to** (期待)
+  - 例：I'm **looking forward to** our vacation. （我很期待我们的假期。）
+  - 场景：表达期待。
+
+- **Look down on** (看不起)
+  - 例：Don't **look down on** people just because they're different. （不要因为别人不同就看不起他们。）
+  - 场景：描述歧视。
+
+- **Look up to** (尊敬)
+  - 例：I really **look up to** my mentor. （我真的很尊敬我的导师。）
+  - 场景：表达敬仰。
+
+**口语实用技巧**：
+- **Out of** 系列多用于解释原因或状态
+- **Up** 系列多用于邀约和行动
+- **Get** 系列多用于变化和结果
+- **Come** 系列多用于事件和发展
+
+**日常对话练习**：
+- A: What are you **up to** this weekend?
+- B: I'm **out of town** on Saturday, but **up for** dinner on Sunday.
+- A: Great! I'll **come up with** a restaurant plan.
+- B: Sounds good! I'm **looking forward to** it.
+
+这个教程现在更全面了，覆盖了 60+短语！如果还有遗漏或想调整，随时说。加油，你的"介词流"会越来越溜！😊
