@@ -481,4 +481,376 @@
 - A: Great! I'll **come up with** a restaurant plan.
 - B: Sounds good! I'm **looking forward to** it.
 
-这个教程现在更全面了，覆盖了 60+短语！如果还有遗漏或想调整，随时说。加油，你的"介词流"会越来越溜！😊
+## PART3--- 身体情绪表达：用身体变化说心情
+
+---
+
+英语中有很多用身体部位和生理变化来表达情绪的生动短语，让表达更形象、更地道。这些短语在日常对话、文学作品中都很常见。
+
+### **1. 愤怒与激动类**
+
+#### **Blood boils**（血液沸腾 → 极度愤怒）
+- **含义**：形容非常生气，怒火中烧
+- **例句**：When I heard what he said, my **blood boiled**. （当我听到他说的话时，我怒火中烧。）
+- **场景**：描述被激怒时的强烈情绪
+
+#### **See red**（看到红色 → 暴怒）
+- **含义**：极度愤怒，失去理智
+- **例句**：He **saw red** when they insulted his family. （当他们侮辱他的家人时，他暴怒了。）
+- **场景**：被严重冒犯时的反应
+
+#### **Blow your top**（气炸了）
+- **含义**：突然发怒
+- **例句**：My boss **blew his top** when he saw the mistake. （老板看到错误时气炸了。）
+- **场景**：工作中突然发怒
+
+#### **Hit the roof**（暴跳如雷）
+- **含义**：非常生气
+- **例句**：She **hit the roof** when she found out the truth. （她发现真相时暴跳如雷。）
+- **场景**：得知坏消息时的强烈反应
+
+#### **Lose your cool**（失去冷静）
+- **含义**：控制不住脾气
+- **例句**：Don't **lose your cool** in the meeting. （开会时不要失去冷静。）
+- **场景**：提醒保持冷静
+
+### **2. 恐惧与紧张类**
+
+#### **Cold feet**（脚冷 → 临阵退缩）
+- **含义**：在关键时刻因恐惧而退缩
+- **例句**：He got **cold feet** right before the wedding. （就在婚礼前他临阵退缩了。）
+- **场景**：重大决定前的恐惧
+
+#### **Heart in your mouth**（心在嘴里 → 极度紧张）
+- **含义**：非常紧张，心提到嗓子眼
+- **例句**：My **heart was in my mouth** during the final exam. （期末考试时我紧张得要命。）
+- **场景**：紧张时刻的描述
+
+#### **Butterflies in your stomach**（胃里有蝴蝶 → 紧张/兴奋）
+- **含义**：紧张或兴奋时的胃部感觉
+- **例句**：I always get **butterflies in my stomach** before a big presentation. （每次做重要演讲前我都会紧张。）
+- **场景**：重要事件前的紧张感
+
+#### **Get the jitters**（紧张不安）
+- **含义**：感到紧张焦虑
+- **例句**：I always **get the jitters** before public speaking. （公开演讲前我总是紧张不安。）
+- **场景**：公开场合前的紧张
+
+#### **Shake like a leaf**（抖得像树叶）
+- **含义**：非常害怕，浑身发抖
+- **例句**：After the accident, I was **shaking like a leaf**. （事故后我抖得像树叶。）
+- **场景**：极度恐惧时的生理反应
+
+### **3. 悲伤与失望类**
+
+#### **Heart sinks**（心沉下去 → 失望/沮丧）
+- **含义**：突然感到失望或沮丧
+- **例句**：My **heart sank** when I heard the bad news. （听到坏消息时我的心沉了下去。）
+- **场景**：听到坏消息时的反应
+
+#### **Lump in your throat**（喉咙有肿块 → 想哭）
+- **含义**：因感动或悲伤而哽咽
+- **例句**：The movie ending gave me a **lump in my throat**. （电影结局让我哽咽了。）
+- **场景**：感动或悲伤时的生理反应
+
+#### **Down in the mouth**（嘴角下垂 → 沮丧）
+- **含义**：看起来沮丧或不开心
+- **例句**：He's been **down in the mouth** since he lost his job. （自从失业后他一直很沮丧。）
+- **场景**：描述沮丧的表情
+
+### **4. 惊喜与兴奋类**
+
+#### **Eyes pop out**（眼睛弹出 → 非常惊讶）
+- **含义**：极度惊讶
+- **例句**：My **eyes nearly popped out** when I saw the price. （看到价格时我惊讶得眼珠都要掉出来了。）
+- **场景**：看到令人震惊的事物
+
+#### **Jump for joy**（高兴得跳起来 → 非常开心）
+- **含义**：非常高兴，兴奋地跳起来
+- **例句**：She **jumped for joy** when she got the job offer. （收到工作录用时她高兴得跳了起来。）
+- **场景**：收到好消息时的反应
+
+#### **On cloud nine**（在九霄云上 → 极度快乐）
+- **含义**：非常开心，飘飘欲仙
+- **例句**：He's been **on cloud nine** since he met her. （自从遇见她后他一直很开心。）
+- **场景**：描述极度快乐的状态
+
+#### **Be over the moon**（欣喜若狂）
+- **含义**：非常高兴
+- **例句**：I was **over the moon** when I passed the exam. （通过考试时我欣喜若狂。）
+- **场景**：取得成就时的喜悦
+
+#### **Be tickled pink**（非常开心）
+- **含义**：非常高兴，很满意
+- **例句**：She was **tickled pink** with the surprise party. （她对惊喜派对非常开心。）
+- **场景**：对礼物或惊喜的满意
+
+### **5. 尴尬与害羞类**
+
+#### **Red in the face**（脸红 → 尴尬/害羞）
+- **含义**：因尴尬或害羞而脸红
+- **例句**：She went **red in the face** when everyone looked at her. （当大家都看她时她脸红了。）
+- **场景**：尴尬或害羞时的生理反应
+
+#### **Wish the ground would swallow you up**（希望地面裂开）
+- **含义**：非常尴尬，想消失
+- **例句**：When I tripped in front of everyone, I **wished the ground would swallow me up**. （在大家面前绊倒时，我真希望地面裂开。）
+- **场景**：极度尴尬的时刻
+
+#### **Keep a straight face**（忍住不笑）
+- **含义**：努力不笑出来
+- **例句**：It was hard to **keep a straight face** during his funny speech. （他搞笑的演讲让人很难忍住不笑。）
+- **场景**：在严肃场合忍住笑
+
+### **6. 疲劳与压力类**
+
+#### **At the end of your rope**（在绳子末端 → 筋疲力尽）
+- **含义**：非常疲惫，无法继续
+- **例句**：After working 60 hours this week, I'm **at the end of my rope**. （这周工作60小时后，我筋疲力尽了。）
+- **场景**：描述极度疲劳
+
+#### **Be on your last legs**（筋疲力尽）
+- **含义**：非常疲惫，快要支撑不住
+- **例句**：After the marathon, I was **on my last legs**. （马拉松后我筋疲力尽。）
+- **场景**：极度疲劳的状态
+
+#### **Be running on empty**（精力耗尽）
+- **含义**：没有精力了
+- **例句**：I've been working all day and I'm **running on empty**. （我工作了一整天，精力耗尽了。）
+- **场景**：描述精力枯竭
+
+### **7. 其他常用表达**
+
+#### **Have a frog in your throat**（嗓子哑了）
+- **含义**：嗓子不舒服，说话困难
+- **例句**：Sorry, I **have a frog in my throat** this morning. （抱歉，今天早上我嗓子哑了。）
+- **场景**：感冒或紧张时嗓子不适
+
+#### **Be all ears**（全神贯注地听）
+- **含义**：认真倾听
+- **例句**：Tell me the story, I'm **all ears**. （告诉我故事，我洗耳恭听。）
+- **场景**：表示愿意倾听
+
+#### **Have your fingers crossed**（祈求好运）
+- **含义**：希望好运，交叉手指
+- **例句**：I **have my fingers crossed** for your interview. （我为你面试祈求好运。）
+- **场景**：为他人或自己祈求好运
+
+#### **Bite your tongue**（咬舌头 → 忍住不说）
+- **含义**：忍住想说的话
+- **例句**：I had to **bite my tongue** during the meeting. （开会时我不得不忍住想说的话。）
+- **场景**：需要克制时的反应
+
+### **记忆技巧**
+
+想象这些身体反应：
+- **愤怒**：血液沸腾 → 身体发热
+- **恐惧**：脚冷 → 血液流向重要器官
+- **紧张**：胃里有蝴蝶 → 神经紧张影响消化
+- **悲伤**：心沉下去 → 情绪低落影响身体
+
+### **练习对话**
+
+**对话1：愤怒与紧张**
+A: Why are you so angry? Your face is all red!
+B: When I heard what he said about my work, my **blood boiled**. I had to **bite my tongue** to stay professional.
+
+**对话2：恐惧与退缩**
+A: Are you still going to give the speech?
+B: I'm getting **cold feet**. My **heart is in my mouth** just thinking about it.
+
+**对话3：惊喜与快乐**
+A: You look so happy today!
+B: I am! When I got the promotion news, I almost **jumped for joy**. I'm **on cloud nine**!
+
+**对话4：疲劳与尴尬**
+A: You look exhausted.
+B: I'm **running on empty** after that project. And I made a stupid mistake in the meeting - I **wished the ground would swallow me up**.
+
+### **文化小贴士**
+
+- 英语中身体情绪表达非常丰富，反映了西方文化对生理反应与情绪联系的重视
+- 这些短语在口语和书面语中都很常见，能让表达更生动
+- 使用时要注意语境，有些表达比较夸张，适合非正式场合
+- 很多表达源自日常生活观察，容易理解和记忆
+
+这个专栏让你的英语表达更生动形象！记住这些身体情绪短语，让你的口语更有画面感。😊
+
+---
+
+## PART4--- -y结尾形容词：让描述更生动
+
+---
+
+英语中有很多以"-y"结尾的形容词，它们通常表示"具有...特性的"或"像...一样的"。这些词在日常口语中非常常用，能让描述更生动具体。
+
+### **1. 价格与价值类**
+
+#### **Pricy**（昂贵的）
+- **含义**：价格高的，昂贵的
+- **例句**：This restaurant is a bit **pricy** for everyday dining. （这家餐厅对于日常用餐来说有点贵。）
+- **场景**：描述商品或服务的价格
+- **同义词**：expensive, costly
+
+#### **Pricey**（昂贵的）
+- **含义**：与pricy相同，更常见的拼写
+- **例句**：The new iPhone is quite **pricey**. （新iPhone相当贵。）
+- **场景**：描述电子产品等高价商品
+
+#### **Worthy**（值得的）
+- **含义**：值得的，有价值的
+- **例句**：This movie is **worthy** of your time. （这部电影值得你花时间看。）
+- **场景**：评价事物价值
+
+### **2. 性格与行为类**
+
+#### **Bossy**（爱发号施令的）
+- **含义**：喜欢指挥别人的，专横的
+- **例句**：My older sister is very **bossy**. （我姐姐很爱发号施令。）
+- **场景**：描述控制欲强的人
+
+#### **Picky**（挑剔的）
+- **含义**：挑剔的，难以取悦的
+- **例句**：He's very **picky** about food. （他对食物很挑剔。）
+- **场景**：描述对事物要求高的人
+
+#### **Nosy**（爱管闲事的）
+- **含义**：好打听的，爱管闲事的
+- **例句**：Our neighbor is too **nosy**. （我们的邻居太爱管闲事了。）
+- **场景**：描述过度关注他人事务的人
+
+#### **Moody**（情绪化的）
+- **含义**：情绪多变的，喜怒无常的
+- **例句**：She's been **moody** lately. （她最近情绪多变。）
+- **场景**：描述情绪不稳定的人
+
+### **3. 外观与特征类**
+
+#### **Bulky**（笨重的）
+- **含义**：体积大的，笨重的
+- **例句**：This suitcase is too **bulky** for carry-on. （这个行李箱太笨重，不能随身携带。）
+- **场景**：描述大而笨重的物品
+
+#### **Chunky**（厚实的）
+- **含义**：厚实的，大块的
+- **例句**：I love **chunky** sweaters in winter. （冬天我喜欢穿厚实的毛衣。）
+- **场景**：描述厚重或大块的物品
+
+#### **Fluffy**（蓬松的）
+- **含义**：蓬松的，柔软的
+- **例句**：The cat has **fluffy** fur. （这只猫有蓬松的毛。）
+- **场景**：描述柔软蓬松的物体
+
+#### **Bumpy**（颠簸的）
+- **含义**：不平坦的，颠簸的
+- **例句**：The road is very **bumpy**. （这条路很颠簸。）
+- **场景**：描述不平坦的表面
+
+### **4. 感觉与状态类**
+
+#### **Sleepy**（困倦的）
+- **含义**：困倦的，想睡的
+- **例句**：I feel **sleepy** after lunch. （午饭后我觉得困倦。）
+- **场景**：描述疲劳想睡的状态
+
+#### **Hungry**（饥饿的）
+- **含义**：饥饿的
+- **例句**：I'm getting **hungry**. Let's eat soon. （我饿了，我们快点吃饭吧。）
+- **场景**：描述饥饿感
+
+#### **Thirsty**（口渴的）
+- **含义**：口渴的
+- **例句**：After the workout, I'm really **thirsty**. （锻炼后我真的很渴。）
+- **场景**：描述口渴状态
+
+#### **Dizzy**（头晕的）
+- **含义**：头晕的，眩晕的
+- **例句**：I feel **dizzy** after spinning around. （转圈后我觉得头晕。）
+- **场景**：描述眩晕感
+
+### **5. 天气与环境类**
+
+#### **Sunny**（晴朗的）
+- **含义**：阳光充足的，晴朗的
+- **例句**：It's a **sunny** day today. （今天是个晴朗的日子。）
+- **场景**：描述天气
+
+#### **Rainy**（下雨的）
+- **含义**：下雨的，多雨的
+- **例句**：Bring an umbrella, it's **rainy** outside. （带把伞，外面在下雨。）
+- **场景**：描述雨天
+
+#### **Windy**（有风的）
+- **含义**：有风的，风大的
+- **例句**：It's too **windy** for a picnic. （风太大不适合野餐。）
+- **场景**：描述风大的天气
+
+#### **Foggy**（有雾的）
+- **含义**：有雾的，雾蒙蒙的
+- **例句**：The morning was **foggy** and cold. （早晨有雾而且很冷。）
+- **场景**：描述雾天
+
+### **6. 食物与味道类**
+
+#### **Salty**（咸的）
+- **含义**：咸的
+- **例句**：This soup is too **salty**. （这个汤太咸了。）
+- **场景**：描述食物味道
+
+#### **Spicy**（辣的）
+- **含义**：辣的，辛辣的
+- **例句**：I love **spicy** food. （我喜欢辣的食物。）
+- **场景**：描述辣味食物
+
+#### **Creamy**（奶油般的）
+- **含义**：奶油状的，柔滑的
+- **例句**：This sauce has a **creamy** texture. （这个酱汁有奶油般的质地。）
+- **场景**：描述食物的口感
+
+#### **Juicy**（多汁的）
+- **含义**：多汁的
+- **例句**：The watermelon is very **juicy**. （这个西瓜很多汁。）
+- **场景**：描述水果或肉类
+
+### **构词规律**
+
+**名词 + y = 形容词**：
+- price → pricy/pricey（昂贵的）
+- boss → bossy（专横的）
+- bulk → bulky（笨重的）
+- pick → picky（挑剔的）
+- sun → sunny（晴朗的）
+- rain → rainy（下雨的）
+
+### **记忆技巧**
+
+- **-y结尾**通常表示"具有...特性"
+- 很多词可以直接从名词转换而来
+- 这些词在日常口语中非常自然流畅
+
+### **练习对话**
+
+**对话1：购物**
+A: What do you think of this jacket?
+B: It looks nice but it's a bit **pricey**. Also, it's too **bulky** for travel.
+
+**对话2：性格描述**
+A: How's your new roommate?
+B: She's nice but a bit **bossy**. And she's very **picky** about cleanliness.
+
+**对话3：天气与感觉**
+A: You look tired.
+B: I am. It's so **rainy** and I feel **sleepy**. I'm also getting **hungry**.
+
+### **使用小贴士**
+
+- 这些形容词在口语中比正式形容词更常用
+- 能让描述更生动具体
+- 适合日常对话和非正式场合
+- 很多词有比较级和最高级形式（pricier, priciest）
+
+掌握这些"-y"结尾形容词，让你的英语表达更地道自然！
+
+---
+
+这个教程现在更全面了，覆盖了 100+短语和词汇！如果还有遗漏或想调整，随时说。加油，你的"介词流"会越来越溜！😊
